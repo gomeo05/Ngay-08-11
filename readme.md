@@ -13,3 +13,5 @@ However, Xavi's side remain top of Group H with 10 points and will reach the kno
 Shakhtar, who last beat the five-time Champions League winners Barcelona in 2008, are third in Group H with six points.
 
 Marino Pusic's team are hoping to reach the knockout stages for the first time since the 2017-18 campaign, when they lost in the round of 16 to Roma.
+On 1 December 1955 Rosa Parks was arrested in Montgomery, Alabama, for refusing to give her bus seat to a white passenger. In these exclusive BBC clips, discover how her courageous act of defiance set in motion a chain of events that ended segregation in the US, but at a personal cost to Parks herself.
+On 1 December 1955 Rosa Parks was arrested in Montgomery, Alabama, for refusing to give her bus seat to a white passenger. In these exclusive BBC clips, discover how her courageous act of defiance set in motion a chain of events that ended segregation in the US, but at a personal cost to Parks herself.
